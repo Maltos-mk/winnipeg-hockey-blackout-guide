@@ -1,1 +1,0 @@
-# Winnipeg Hockey Blackout Guide
